@@ -1,3 +1,3 @@
-## Check out our website! 😤
+# Check out our website! 😤
 
-🚨 [bayleafapp.com](bayleafapp.com) 🚨
+🚨🚨🚨 [bayleafapp.com](bayleafapp.com) 🚨🚨🚨
